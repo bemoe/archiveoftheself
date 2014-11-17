@@ -28,13 +28,13 @@ This piece is being written for Cabinet Magazine, "a quarterly of art and cultur
 
 Plan
 
-Week of November 24th: Finish Bell book, compile document of notes on Narrative site/videos, reread Sontag and Tagg
+November 23rd: Bibliography, narrative description, outline, read Sontag, finish Bell, read Engelbart
 
-Week of December 1st: Have full outline + notes finished
+November 30th: Write 3000 words
 
-Week of December 8th: Have completed first draft
+December 7th: Send in first final draft
 
-December 12th: Submit final
+December 14th: Submit final
 
 Criteria for Evaluation
 
